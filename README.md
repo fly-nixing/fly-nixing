@@ -9,4 +9,5 @@ Here is my resume(≧∇≦)ﾉ:
 - 🤔 I'll study in here,I'm a signifies
 - 💬 emm……
 - 📫 还是说中文吧。。。窝英语不好（
-- 😄 见到你们我很高兴（笑）
+- 😄 见到你们我很高兴awa
+<h2>瓦达西以后没空上线了，要记住我很喜欢行秋！！ヾ(￣▽￣)</h2>
