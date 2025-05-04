@@ -1,5 +1,5 @@
 <!DOCTYPE html>
-<h2>快看这里！！</h2>
+<h1>快看这里！！</h1>
 
 Here is my resume(≧∇≦)ﾉ:
 
